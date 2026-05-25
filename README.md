@@ -6,7 +6,6 @@
 </p>
 
 <p align="center">
-ㅤ $${\color{#5f8576}dniuf}$$ $${\color{#5f8576}/}$$ $${\color{#5f8576}party}$$ $${\color{#5f8576}always}$$ $${\color{#5f8576}please.}$$  ㅤ</br>
-ㅤ $${\color{#5f8576}if}$$ $${\color{#5f8576}you}$$ $${\color{#5f8576}know}$$ $${\color{#5f8576}me,}$$ $${\color{#5f8576}please}$$ $${\color{#5f8576}pretend}$$ $${\color{#5f8576}you}$$ $${\color{#5f8576}don't}$$ $${\color{#5f8576}(unless}$$ $${\color{#5f8576}you're}$$ $${\color{#5f8576}in}$$ $${\color{#5f8576}party)}$$  ㅤ</br>
-ㅤ $${\color{#5f8576}block}$$ $${\color{#5f8576}me}$$ $${\color{#5f8576}if}$$ $${\color{#5f8576}you}$$ $${\color{#5f8576}support}$$ $${\color{#5f8576}the}$$ $${\color{#5f8576}CONTENT}$$ $${\color{#5f8576}CREATOR}$$ $${\color{#5f8576}samgladiator.}$$  ㅤ</br>
+ㅤ $${\color{#5f8576}``}$$ $${\color{#5f8576}just}$$ $${\color{#5f8576}know}$$ $${\color{#5f8576}i'm}$$ $${\color{#5f8576}a}$$ $${\color{#5f8576}liar,}$$ $${\color{#5f8576}with}$$ $${\color{#5f8576}my}$$ $${\color{#5f8576}wounded}$$ $${\color{#5f8576}animal}$$ $${\color{#5f8576}act.}$$  ㅤ</br>
+ㅤ $${\color{#5f8576}just}$$ $${\color{#5f8576}know}$$ $${\color{#5f8576}it's}$$ $${\color{#5f8576}not}$$ $${\color{#5f8576}safe}$$ $${\color{#5f8576}to}$$ $${\color{#5f8576}trust}$$ $${\color{#5f8576}me,}$$ $${\color{#5f8576}and}$$ $${\color{#5f8576}i}$$ $${\color{#5f8576}don't}$$ $${\color{#5f8576}deserve}$$ $${\color{#5f8576}a}$$ $${\color{#5f8576}second}$$ $${\color{#5f8576}chance.}$$ $${\color{#5f8576}''}$$  ㅤ</br>
 </p>
