@@ -1,8 +1,8 @@
 <div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-05-25_122842319.png" /></div>
 <p align="center">
-ㅤ $${\color{#5f8576}samgladiator}$$ $${\color{#5f8576}(cc)}$$ $${\color{#5f8576}supporters}$$ $${\color{#5f8576}block}$$ $${\color{#5f8576}me}$$ $${\color{#5f8576}eww}$$
+ㅤ $${\color{#5f8576}samgladiator}$$ $${\color{#5f8576}(cc)}$$ $${\color{#5f8576}supporters}$$ $${\color{#5f8576}block}$$ $${\color{#5f8576}me}$$ $${\color{#5f8576}ok??}$$ㅤㅤ
 </p>
-<p align="center"> ㅤㅤ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯
+<p align="center"> ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯
 ㅤ
 <p align="center">
  <a href= "https://rentry.co/samgladiator">rentry</a> 
