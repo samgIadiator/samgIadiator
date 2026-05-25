@@ -5,7 +5,7 @@
 <p align="center"> ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯
 ㅤ
 <p align="center">
- <a href= "https://rentry.co/samgladiator">rentry</a> 
+ <a href= "https://rentry.co/samgladiator">rentry</a> ㅤㅤㅤㅤㅤ <a href= "https://space.bilibili.com/50091871/upload/video">credit</a>ㅤㅤ
 </p>
 
 <p align="center">
